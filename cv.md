@@ -8,7 +8,7 @@
 
 ### Contact:
 
-**Phone:** +79494220608
+**Phone:** +7 949 4220608  
 **E-mail:** dyoncha17@gmail.com  
 **Telegram:** @dch17
 
