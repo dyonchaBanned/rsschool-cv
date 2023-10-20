@@ -1,5 +1,3 @@
-===========================================================
-
 # Denis Savchenko
 
 ### Junior Frontend Developer
